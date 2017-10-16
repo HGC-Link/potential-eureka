@@ -1,1 +1,1 @@
-# 10/10 efford
+# 10/10 effort
